@@ -13,10 +13,11 @@ Tam Biet MQ
 - 08/03/2023, 08:56 - Van: Cagnotte encore plus simple pas d'achat à faire sûr d'être dans les temps.
 - 08/03/2023, 09:01 - Rémi Veyrié: Le sac à dos est une bonne idée. Les cagnottes en général, je trouve ça dommage. C'est impersonnel.
 - 08/03/2023, 09:05 - Van: SONDAGE :
-- Tu préfères
-- OPTION : Un sac dos moche personnel (‎1 vote)
-- OPTION : Une cagnotte impersonnelle qui fait toujours plaisir (‎9 votes)
-- 
+ ~~~~
+ Tu préfères
+ OPTION : Un sac dos moche personnel (‎1 vote)
+ OPTION : Une cagnotte impersonnelle qui fait toujours plaisir (‎9 votes)
+ ~~~~
 - 08/03/2023, 09:24 - Rémi Veyrié: On peut aussi lui offrir un survet le coq sportif. Il a oublié le sien chez nous et ça avait l'air de le perturber.
 - 08/03/2023, 09:26 - ‎Chau Minh 9842b 6751 a ajouté Minh Man Nguyen
 - 08/03/2023, 09:27 - Chau Minh 9842b 6751: Je me disais bien que j’avais oublié quelqu’un 🤦‍♀️
@@ -30,7 +31,7 @@ Tam Biet MQ
 - 08/03/2023, 10:08 - Minh Man Nguyen: No
 - 08/03/2023, 10:08 - Xuan huy Le: le?
 - 08/03/2023, 10:09 - Van: ‎IMG-20230308-WA0001.jpg (fichier joint)
-- @33668995665 dis nous ton vote on fera +1 dans les décomptes des votes.
+- @Minh Man dis nous ton vote on fera +1 dans les décomptes des votes.
 - 08/03/2023, 11:16 - Rémi Veyrié: Moi je vous le dis, ne m'offrez jamais une cagnotte, ça ne me fait pas plaisir.
 - 08/03/2023, 11:16 - Xuan huy Le: même en liquide dans une valise noire?
 - 08/03/2023, 11:16 - Xuan huy Le: (une petite valise noire)
